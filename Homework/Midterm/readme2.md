@@ -1,0 +1,1 @@
+[Midterm](https://rgphysicsnb.blogspot.com/b/post-preview?token=sX041GEBAAA.2vqlHQfY_L7eOnh-h3viEUWXSEnv61P1c84IuTR5dIK_qXOo3jLrFkP3Nmn6Fc-Wre8uvx4s-BdpdRblHWA0eQ.3uo4XJvaJcrj-6YTaFX6CQ&postId=689764101202040637&type=POST)
